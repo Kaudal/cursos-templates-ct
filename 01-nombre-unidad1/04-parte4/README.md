@@ -8,8 +8,8 @@
 [5 principios de equipos remotos](https://vimeo.com/398010768)
 
 Luego de ver este video, pregúntate lo siguiente:
-1.
-2.
-3.
+1. ¿sdfjhsdkhdsf?
+2. ¿kjshdkjhd?
+3. ¿sjdhkjdshf?
 
 ***
